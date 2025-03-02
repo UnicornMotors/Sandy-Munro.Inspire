@@ -1,0 +1,1 @@
+- [Inside the Motors: VW vs. Tesla Bearing Comparison](https://youtu.be/TUHBki1fiMY)
